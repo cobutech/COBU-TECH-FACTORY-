@@ -22,17 +22,32 @@
 </p>
     <img alt="X-FORCE-MD" width="500" height="400" src="https://telegra.ph/file/ebfe42de04f5cb5a6e647.jpg">
 
+***
 
 
 
 
-  
+
+
+
+
+    
+
 ***
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=I'M+MØRTÄL+KØMBÄT-MD;CRËÄTËD+BY+ÇÆLVÏÑË+ØBÜ-TECH" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=GHTAFBAFF&center=true&width=910&height=100&lines=I'M+MØRTÄL+KØMBÄT-MD;CRËÄTËD+BY+ÇÆLVÏÑË+ØBÜ-TECH" alt="Typing SVG" /></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   </p>
     <img alt="MØRTÄL KØMBÄT-MD" width="500" height="400" src="https://telegra.ph/file/a09f5a7060a46f3ab578f.jpg"
+
+***
+
+
+
+
+
+
+
       
 ***
   
@@ -40,8 +55,43 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   </p>
     <img alt="THÜNDËR BØLT-MD" width="500" height="400" src="https://telegra.ph/file/4105bcf6921af34dd8b7c.jpg">
+
 ***
 
+
+
+
+
+
+
+
+
+
+
+
+    
+***
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=ZFF100&center=true&width=910&height=100&lines=I'AM+DËÄTHSTRØKË+MD+;CRËÄTË+BY+ÇÄLVÏNË+ØBÜ-TËCH;MULTI+DEVICE+WHATSAPP+BOT" alt="Typing SVG" /></a>
+  
+ ****
+</p>
+    <img alt="X-FORCE-MD" width="500" height="400" src="https://telegra.ph/file/4ba98bf49301e730286d8.jpg">
+
+***
+
+
+
+
+
+
+
+
+
+
+
+
+
+    
 ***
   
   </p>
