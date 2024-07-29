@@ -16,7 +16,11 @@
 
   ****
 
-
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ribeye&size=50&pause=1000&color=F710B1&center=true&width=910&height=100&lines=This+Is+X-FORCE-MD;MULTI+DEVICE+WHATSAPP+BOT;CREATED+BY+CØBU-TECH;COMING+SOONER." alt="Typing SVG" /></a>
+ 
+****
+</p>
+    <img alt="X-FORCE-MD" width="500" height="420" src="https://telegra.ph/file/ebfe42de04f5cb5a6e647.jpg">
 
 
 
