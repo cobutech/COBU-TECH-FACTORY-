@@ -20,7 +20,7 @@
  
 ****
 </p>
-    <img alt="X-FORCE-MD" width="500" height="420" src="https://telegra.ph/file/ebfe42de04f5cb5a6e647.jpg">
+    <img alt="X-FORCE-MD" width="500" height="400" src="https://telegra.ph/file/ebfe42de04f5cb5a6e647.jpg">
 
 
 
@@ -32,7 +32,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=I'M+MØRTÄL+KØMBÄT-MD;CRËÄTËD+BY+ÇÆLVÏÑË+ØBÜ-TECH" alt="Typing SVG" /></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   </p>
-    <img alt="MØRTÄL KØMBÄT-MD" width="500" height="300" src="https://telegra.ph/file/d0c776d2f4f5cd96861a2.jpg"
+    <img alt="MØRTÄL KØMBÄT-MD" width="500" height="400" src="https://telegra.ph/file/a09f5a7060a46f3ab578f.jpg"
       
 ***
   
@@ -51,7 +51,7 @@
  
 ****
 </p>
-    <img alt="X-FORCE-MD" width="500" height="420" src="https://telegra.ph/file/4ba98bf49301e730286d8.jpg">
+    <img alt="X-FORCE-MD" width="500" height="400" src="https://telegra.ph/file/4ba98bf49301e730286d8.jpg">
     
 
 
