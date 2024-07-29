@@ -42,7 +42,15 @@
     <img alt="THÜNDËR BØLT-MD" width="500" height="400" src="https://telegra.ph/file/4105bcf6921af34dd8b7c.jpg">
 ***
 
-
+***
+  
+  
+  
+ 
+****
+</p>
+    <img alt="X-FORCE-MD" width="500" height="420" src="https://telegra.ph/file/4ba98bf49301e730286d8.jpg">
+    
 
 
 
