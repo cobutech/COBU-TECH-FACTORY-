@@ -15,6 +15,28 @@
 <p/>
 
   ****
+
+
+
+
+
+
+
+  
+***
+  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=910&height=100&lines=I'M+MØRTÄL+KØMBÄT-MD;CRËÄTËD+BY+ÇÆLVÏÑË+ØBÜ-TECH" alt="Typing SVG" /></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+  </p>
+    <img alt="MØRTÄL KØMBÄT-MD" width="500" height="300" src="https://telegra.ph/file/d0c776d2f4f5cd96861a2.jpg"
+
+***
+
+
+
+
+
+  
   
 *DËVËLØPËR*
 
